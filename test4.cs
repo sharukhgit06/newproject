@@ -1,3 +1,3 @@
 
-welcome all
+welcome everyone
 
